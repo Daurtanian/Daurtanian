@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Daurtanian
+- 👀 I’m interested in dinero
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on making mula
+- 📫 How to reach me pager or email cbaluyutm@gmail.com
